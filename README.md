@@ -1,4 +1,4 @@
-🌟 Welcome to my coding jams! 🌟
+🌟 Hi There 🌟
 
 
 <!--
